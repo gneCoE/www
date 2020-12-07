@@ -1,6 +1,6 @@
-## Sourabh Sharma
+## Mandeep Singh
 
-### Cyber Security Expert
+### Clerk
 
 ![Display picture](Photos/Mandeep.png)
 
